@@ -1,0 +1,5 @@
+- 👋 Hey, I’m June
+- 👀 I’m interested in ... Music
+- 🌱 I’m currently learning ... Coding
+- 💞️ I’m looking to collaborate on ... Group projects
+- 📫 How to reach me ...Recon #6739
